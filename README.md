@@ -2,3 +2,7 @@
 
 
 https://main--storied-biscotti-ebd980.netlify.app/
+
+
+Видео для ютуба 
+https://www.youtube.com/watch?v=_yHeBwIU41w
